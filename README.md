@@ -1,1 +1,1 @@
-To play, simply download the APK and install it on any Android device. For further instructions, please refer to the user guide.
+To get started, download the APK and install it on your Android device. For detailed instructions, please consult the user guide. Kindly refrain from re-uploading the files without my permission. Thank you!
